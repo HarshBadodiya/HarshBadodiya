@@ -62,7 +62,7 @@
   -  <img width="25" alt="image" src="https://github.com/user-attachments/assets/80c34a73-41d6-4733-b300-121573856bb9" />  LinkedIn: [linked.com](https://www.linkedin.com/in/harsh-badodiya-84155139b/)
 -   <img width="25" alt="image" src="https://github.com/user-attachments/assets/5eb53cfe-4341-49de-b208-1824dbbb3ab0" />   Gmail:  harshbadodiya00@Gmail.com
 -   <img 
-src="https://share.google/sNkp1omWcKj6XnL0Z" width="25"/> profile website: (https://harshbadodiya.github.io/Profile-website-/?utm_source=ig&utm_medium=social&utm_content=link_in_bio&fbclid=PAb21jcAOwjQFleHRuA2FlbQIxMQBzcnRjBmFwcF9pZA81NjcwNjczNDMzNTI0MjcAAaeRQkd0TByPspGc70j5L_xMbnN4Yz9EpEZObPeO7MPqn3SiF0xkjB6lU7knJQ_aem_4qqaZ31e-bT1EPUa55GYrw)
+src="https://img.icon8.con/fluency/48/website-new.png" width="25"/> profile website: (https://harshbadodiya.github.io/Profile-website-/?utm_source=ig&utm_medium=social&utm_content=link_in_bio&fbclid=PAb21jcAOwjQFleHRuA2FlbQIxMQBzcnRjBmFwcF9pZA81NjcwNjczNDMzNTI0MjcAAaeRQkd0TByPspGc70j5L_xMbnN4Yz9EpEZObPeO7MPqn3SiF0xkjB6lU7knJQ_aem_4qqaZ31e-bT1EPUa55GYrw)
 
 
 
